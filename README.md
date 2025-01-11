@@ -1,6 +1,6 @@
 ```
 于是我们迷上了深渊
-Thus we fell in love with the abyss
+Thus we fell for the abyss.
 
 一个纪念日/痛饮往昔的风暴/和我们一起下沉
 A day of remembrance, 
@@ -10,7 +10,7 @@ sinking together with us.
 风在钥匙孔里成了型/那是死者的记忆/夜的知识
 The wind takes shape in the keyhole,
 it is the memory of the dead,
-the wisdom of the night.
+the knowledge of nights.
 
-——北岛
+——北岛 Bei Dao
 ```
