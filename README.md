@@ -10,7 +10,7 @@ sinking together with us.
 风在钥匙孔里成了型/那是死者的记忆/夜的知识
 The wind takes shape in the keyhole,
 it is the memory of the dead,
-the edifice of the night.
+the knowledge of the night.
 
 ——北岛 Bei Dao
 ```
