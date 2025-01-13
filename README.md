@@ -9,7 +9,7 @@ A day of remembrance,
 drinking deeply of storms past, 
 sinking together with us.
 
-风在钥匙孔里成了型
+风在钥匙孔里成了形
 那是死者的记忆
 夜的知识
 The wind takes shape in the keyhole,
