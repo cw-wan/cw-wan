@@ -1,10 +1,9 @@
 ```
-风在钥匙孔里成了形
-那是死者的记忆
-夜的知识
-The wind takes shape in the keyhole,
-it is the memory of the dead,
-the knowledge of the night.
+He reaches up to the scale measuring time
+war remains too far away
+father too close
+he stoops to pass through exams
+and boards that boundless boatdeck
 
-——北岛 Bei Dao
+——As Far As I Know, Bei Dao
 ```
