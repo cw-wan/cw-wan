@@ -5,5 +5,5 @@ father too close
 he stoops to pass through exams
 and boards that boundless boatdeck
 
-——As Far As I Know, Bei Dao
+——As Far As I Know, BeiDao
 ```
